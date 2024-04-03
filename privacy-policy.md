@@ -28,6 +28,6 @@ Bu gizlilik politikası, uygulamamızı güncelledikçe değişebilir. Herhangi 
 
 İletişim
 
-Gizlilik politikamızla ilgili sorularınız veya endişeleriniz varsa, lütfen bizimle iletişime geçmekten çekinmeyin: [email protected]
+Gizlilik politikamızla ilgili sorularınız veya endişeleriniz varsa, lütfen bizimle iletişime geçmekten çekinmeyin: mbykplt8@gmail.com
 
 Bu gizlilik politikasını düzenli olarak gözden geçirmenizi öneririz. Bu uygulamayı kullanarak, bu politikayı kabul etmiş olursunuz.
