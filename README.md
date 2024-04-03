@@ -1,0 +1,1 @@
+# SanliurfaNobetciEczane-Privacy
